@@ -1,1 +1,1 @@
-i cant really upload the unity file sorry
+if it s buggy it your problem
